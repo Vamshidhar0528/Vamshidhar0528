@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vamshidhar0528
-- 👀 I’m interested in cyber security and cyber forencics
+- 👀 I’m interested in Technology
 - 🌱 I’m currently learning from IIT chicago
 - 💞️ I’m looking to collaborate on ...
 - 📫 reach me outcat vamshidharreddy0528@gmail.com
